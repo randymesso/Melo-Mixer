@@ -34,9 +34,6 @@ We may update this Privacy Policy from time to time. If we make changes, we will
 
 8. Contact Us
 If you have any questions or concerns about this Privacy Policy or the App, please contact us at:
-
-Email: support@melomixer.com
-Address: [Your Company Address]
 </p>
 
 
